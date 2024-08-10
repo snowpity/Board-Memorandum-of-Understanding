@@ -1,4 +1,4 @@
-# Annual Director Memorandum of Understanding
+# Director Memorandum of Understanding
 - I will communicate the work and values of Snowpity, Inc., to the community and represent the organization when requested
 - I will make attendance of board meetings a high priority and attempt to miss as few meetings as possible; if I must miss a meeting, I will let everyone know in our group chat
 - I will make my best effort to attend special events
@@ -15,3 +15,4 @@
 - If I volunteer for events held by the organization (such as Mare Fair), I will:
   - Do my best to represent the organization when interacting with other volunteers
   - Respect the chain of command and remember that I am just a volunteer and not use my position as a Director to influence others
+- Every time I begin a term as a Director, I will renew my commitment to this Memorandum of Understanding by submitting a signed copy to the Secretary and Chairpony of the Board
