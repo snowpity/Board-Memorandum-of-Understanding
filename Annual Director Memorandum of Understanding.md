@@ -1,0 +1,17 @@
+# Annual Director Memorandum of Understanding
+- I will communicate the work and values of Snowpity, Inc., to the community and represent the organization when requested
+- I will make attendance of board meetings a high priority and attempt to miss as few meetings as possible; if I must miss a meeting, I will let everyone know in our group chat
+- I will make my best effort to attend special events
+- I will treat other Directors, Officers, and other volunteers with respect
+- I will not interrupt the speaker during a board meeting (unless there’s a valid point of order to address)
+- I will make Snowpity, Inc., a priority in my philanthropy
+- I will act in the best interests of Snowpity, Inc., and will excuse myself from discussions and votes where I might have a conflict of interest
+- I will stay informed about what’s going on with Snowpity, Inc.
+- I will ask questions and request information
+- I will participate in and take responsibility for making decisions on issues, policies, and other matters
+- I will work in good faith with staff and other Directors as partners toward achievement of our goals
+- I will regularly review the financial position of Snowpity, Inc., and remain engaged when it is time to adopt a budget
+- I will read any required documents before board meetings so that I can make informed decisions
+- If I volunteer for events held by the organization (such as Mare Fair), I will:
+  - Do my best to represent the organization when interacting with other volunteers
+  - Respect the chain of command and remember that I am just a volunteer and not use my position as a Director to influence others
